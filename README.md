@@ -2,7 +2,7 @@
 - 👀 I’m interested in Python and Rust
 - 🌱 I’m currently learning C and Java
 - 💞️ I’m looking to collaborate on Java
-- 📫 How to reach me fdj03609@gmail.com
+- 📫 How to reach me alvarez_alvarez@icloud.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I love hiking and riding horses
 
